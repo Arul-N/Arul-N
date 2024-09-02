@@ -1,0 +1,8 @@
+- ```👋``` Arul Nova
+- ```🎒``` High School Student
+- ```🌏``` From India
+- ```🤟🏻``` Obsidian Freak
+- ```📫``` Reach me on gamingajitesh9@gmail.com
+- Socials:
+  - ```📱``` Instagram - `@itzarul_`
+  - ```📱``` Discord - `@firstskylord.`
